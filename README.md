@@ -1,1 +1,1 @@
-TIMURS NEFEDOV , Veronika Pilupa
+Timur Nefedov , Veronika Pilupa
